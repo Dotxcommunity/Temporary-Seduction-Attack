@@ -13,3 +13,5 @@ Features:
 •Setup and working is GUI based•
 
 |and many more|
+
+Full Setup Video On Telegram : https://t.me/Dotxcommunity
