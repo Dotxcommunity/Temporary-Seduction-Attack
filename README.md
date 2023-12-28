@@ -2,17 +2,13 @@
 Introducing the Temporary Seduction Attack, crafted by the Dotxcommunity. It's a more powerful form of phishing attack, and this cyberattack is a masterpiece of wickedness, designed to lure unsuspecting targets into a web of deceit.
 Features:
 
-•100% Working & FREE•
+• Temporary Seduction Attack - Instagram Account H@king         :  https://youtu.be/UQXNJ8OelcA
 
-•Anti Ban•
+• Temporary Seduction Attack - All Social Media Account H@cking : Coming soon...
 
-•No Difference between Real and Fake Url•
+• Temporary Seduction Attack -  Android Mobile H@king           : Coming soon...
 
-•Working On WAN Network•
-
-•Setup and working is GUI based•
-
-|and many more|
+• And many more
 
 Join Telegram : https://t.me/Dotxcommunity
 
