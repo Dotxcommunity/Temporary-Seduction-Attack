@@ -16,4 +16,4 @@ Features:
 
 Join Telegram : https://t.me/Dotxcommunity
 
-Join Youtube  : https://youtu.be/UQXNJ8OelcA
+Join Youtube  : https://www.youtube.com/@Dotxcommunity
