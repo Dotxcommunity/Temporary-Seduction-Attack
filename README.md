@@ -14,4 +14,4 @@ Features:
 
 |and many more|
 
-Full Setup Video On Telegram : https://t.me/Dotxcommunity
+Join Telegram For Full Setup : https://t.me/Dotxcommunity
