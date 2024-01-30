@@ -6,11 +6,7 @@ Introducing the Temporary Seduction Attack, crafted by the Dotxcommunity. It's a
 
 # Temporary Seduction Attack(TSA) Used for:
 
-• Temporary Seduction Attack - All Social Media Account H@cking : Coming Soon...
-
-• Temporary Seduction Attack - Instagram Account H@king         :  Coming Soon...
-
-• Temporary Seduction Attack -  Android Mobile H@king           : Coming Soon...
+• Temporary Seduction Attack - All Social Media Account H@cking : https://t.me/c/1985947328/92
 
 • And many more
 
